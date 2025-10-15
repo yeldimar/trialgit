@@ -1,1 +1,1 @@
-samsung s25 +
+samsung s25 + and Iphone 17 pro max
